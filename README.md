@@ -1,0 +1,1 @@
+# For my [blog](https://www.vietnguyen.site)
